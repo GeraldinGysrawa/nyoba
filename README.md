@@ -1,0 +1,1 @@
+hai aku geraldin gysrawa
